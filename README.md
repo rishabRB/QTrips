@@ -58,7 +58,7 @@ Landing Page </h3>
  Contact</h2>
 <br>
 
-Krishna -  [@Whatsapp](https://wa.me/+917318378893) - krishnassss365@gmail.com - [@LinkedIn](https://www.linkedin.com/in/krishna365/)
+Krishna -  [@Whatsapp](https://wa.me/+9304915269) - bibhuty82@gmail.com - [@LinkedIn](www.linkedin.com/in/rishab-bibhuty-ab1051193)
 
 
 
